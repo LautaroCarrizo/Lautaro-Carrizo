@@ -44,5 +44,5 @@ Durante mi pasantía, pude poner en práctica las siguientes tecnologías:
     ​​🛠️​ Notion
 
 No dudes en contactarme!
-Linkdin => https://www.linkedin.com/in/lautaro-carrizo-13b7a1217/
+Linkedin => https://www.linkedin.com/in/lautaro-carrizo-13b7a1217/
 Correo => laucarrizo332@gmail.com
