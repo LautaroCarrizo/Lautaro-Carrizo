@@ -13,7 +13,7 @@ con el objetivo de prepararme para encontrar mi primera oportunidad laboral en u
 
 ❇️​ ¿A dónde me dirijo?
 
-Mi principal objetivo es crear proyectos que tengan un impacto positivo en la comunidad de tecnología de la información, 
+Mi principal objetivo es crear proyectos que tengan un impacto positivo en la comunidad, 
 aportando mis conocimientos y un compromiso absoluto hacia la mejora continua.
 
 ❇️​ ¿Que tecnologías uso?
